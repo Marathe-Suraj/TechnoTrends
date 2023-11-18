@@ -1,1 +1,0 @@
-# TechnoTrends.github.io
